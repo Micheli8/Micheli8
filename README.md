@@ -1,7 +1,11 @@
 -👋 Olá sou Micheli Cristina. 
+
 -📧Perfil @Micheli8. 
+
 -🎓Formação: Tecnica em Edificações pelo Instituto Federal do Parana.
+
 -👷🏻‍♀️ Cursando Engenharia Civil. 
+
 -🎶🎼 Curiosidades: Sou Apaixonada por Musica, Sou Organista na CCB.
 
 <!---
