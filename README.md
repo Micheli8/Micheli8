@@ -4,7 +4,7 @@
 
 -🎓Formação: Tecnica em Edificações pelo Instituto Federal do Parana.
 
--👷🏻‍♀️ Cursando Engenharia Civil. 
+-👷🏻‍♀️ Sou Discente em Engenharia Civil. 
 
 -🎶🎼 Curiosidades: Sou Apaixonada por Musica, Sou Organista na CCB.
 
